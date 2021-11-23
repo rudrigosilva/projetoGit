@@ -1,0 +1,1 @@
+aqui que vi rolar a parada
